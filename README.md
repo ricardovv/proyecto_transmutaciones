@@ -56,3 +56,4 @@ A la Escuela de Diseño UC, Martín Tironi; Constanza Almarza; DiLabUC (Diseño 
 
 **Proyecto cuenta con el apoyo del Fondart Nacional 2024 / Creación Artística / Interdisciplina**
 
+hola Ricardo
